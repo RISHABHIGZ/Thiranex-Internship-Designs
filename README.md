@@ -1,1 +1,0 @@
-# Thiranex-logo-design-ideas1
